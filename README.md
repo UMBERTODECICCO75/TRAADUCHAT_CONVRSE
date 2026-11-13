@@ -1,0 +1,2 @@
+traduchatapp# TRADUCHAT
+ telecomunicazione & traduzione 
